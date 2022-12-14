@@ -1,5 +1,7 @@
-Here you can say lots of fun things about your site.
+There are not many things one can say about Aaweg I.
 
-Maybe say a some things about yourself.
+It's just a beginning. Or something.
 
-Or maybe what you plan to blog about.
+Maybe an end. We don't know.
+
+We don't want to know either.
